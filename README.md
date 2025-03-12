@@ -7,3 +7,5 @@ This repository is a picure of my cat named Fred. Don't ask me why he sits like 
 Give 1 EC pls
 
 They cut off Freds balls today, but he's doing fine now.
+
+Discipline is doing what you hate to do, but do it like you love it - Mike Tyson
